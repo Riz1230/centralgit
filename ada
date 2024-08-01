@@ -1,1 +1,1 @@
-ada is a leon friend
+ada love leon
